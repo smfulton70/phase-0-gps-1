@@ -1,6 +1,6 @@
 *Sup Guys*
 
-**Boldly going forward**
+**Slowly going forward**
 
 [Leet Memes](http://imgur.com/)
 
